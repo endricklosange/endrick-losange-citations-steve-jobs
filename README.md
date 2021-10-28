@@ -6,3 +6,5 @@ Citation 2 : Être l'homme le plus riche du cimetière ne m'intéresse pas. Alle
 Citation 3 : L'innovation, c'est une situation qu'on choisit parce qu'on a une passion brûlante pour quelque chose.
 
 Citation 4 : Souvent, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous le leur montriez.
+
+Citation 5 : En moins d'une semaine, nous sommes devenus le plus grand distributeur de musique au monde.
